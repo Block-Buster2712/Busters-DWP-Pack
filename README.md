@@ -8,3 +8,5 @@ Griffpatch chromatic scale is by ACoverMakerDude
 Insomniac chromatic scale is by Crystalscanner
 
 All SSS chromatic scales are by SquigglyTuff
+
+All TADC chromatic scales are by I Dan K
