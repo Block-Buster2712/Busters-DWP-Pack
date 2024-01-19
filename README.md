@@ -11,4 +11,6 @@ All SSS chromatic scales are by SquigglyTuff
 
 All TADC chromatic scales are by I Dan K
 
-Morshu chromatic scale by AthenGem
+Morshu chromatic scale is by AthenGem
+
+All Abandoned Streets chromatic scales are by Blu101
