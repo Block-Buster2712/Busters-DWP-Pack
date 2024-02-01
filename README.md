@@ -14,3 +14,5 @@ All TADC chromatic scales are by I Dan K, Devoid and one other who I can't find 
 Morshu chromatic scale is by AthenGem
 
 All Abandoned Streets chromatic scales are by Blu101
+
+All Hermitcraft chromatic scales are by Block_Buster2712
