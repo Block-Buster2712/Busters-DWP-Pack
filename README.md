@@ -16,3 +16,7 @@ Morshu chromatic scale is by AthenGem
 All Abandoned Streets chromatic scales are by Blu101
 
 All Hermitcraft chromatic scales are by Block_Buster2712
+
+Fred the Frog chromatic scale by LeftyDefty
+
+Luna chromatic scale by kaper245
