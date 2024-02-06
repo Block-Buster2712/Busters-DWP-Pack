@@ -5,7 +5,7 @@ Phone Call chromatic scales are by JM505 on GameBanana
 
 Griffpatch chromatic scale is by ACoverMakerDude
 
-Insomniac and Somnus chromatic scales are by Crystalscanner
+Insomniac, Somnus, Oculus and Incertitude chromatic scales are by Crystalscanner
 
 All SSS chromatic scales are by SquigglyTuff
 
