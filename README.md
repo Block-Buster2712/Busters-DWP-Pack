@@ -20,3 +20,7 @@ All Hermitcraft chromatic scales are by Block_Buster2712 (includes MP3 files)
 Fred the Frog chromatic scale by LeftyDefty
 
 Luna chromatic scale by kaper245
+
+Player chromatic scale by Tulpkun
+
+Geo chromatic scale by Geoddy
