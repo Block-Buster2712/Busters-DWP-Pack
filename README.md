@@ -9,7 +9,7 @@ All of Insomniac's chromatic scales are by Crystalscanner
 
 All SSS chromatic scales are by SquigglyTuff
 
-All TADC chromatic scales are by I Dan K, Devoid and one other who I can't find the name of (I'll add them here when I find them)
+All TADC chromatic scales are by I Dan K, Devoid and Kyng
 
 Morshu chromatic scale is by AthenGem
 
